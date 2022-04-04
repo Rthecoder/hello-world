@@ -1,2 +1,2 @@
 # hello-world
-My name is hello-world i like to have the world tour
+My name is RIDA I like to do coding 
